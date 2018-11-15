@@ -16,7 +16,7 @@ More language version is welcome...
 
 ## Goal
 
-Fck the world not be fcked.
+Fck the world with love not blood.
 
 ## Main theme
 
